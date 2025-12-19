@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @krawutzi
 - 👀 I’m interested in melodic electronic music
-- 🌱 I’m currently learning spring boot (kotlin)
+- 🌱 I’m currently learning something
 - 💞️ I’m looking to collaborate on ⬇️
 - 📫 How to reach me ... on my onlyFans account 🙃
 
