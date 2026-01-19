@@ -2,7 +2,7 @@
 - 👀 I’m interested in melodic electronic music
 - 🌱 I’m currently learning something
 - 💞️ I’m looking to collaborate on ⬇️
-- 📫 How to reach me ... on my onlyFans account 🙃
+- 📫 How to reach me ... by carrier pigeon 🕊️
 
 <!---
 krawutzi/krawutzi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
